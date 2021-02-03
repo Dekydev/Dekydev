@@ -1,6 +1,6 @@
 #                                                                    *Dessapossed*
 
-<img align="right" alt="GIF" src="https://i2.wp.com/animecenterbr.com/wp-content/uploads/2019/10/Darker-than-black-hei-HD-Wallpapers-640x360.png?resize=640%2C361&ssl=1" />
+<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/806386966345154610/806396408881479680/LlvFI9c.gif" />
 
 <p align="center"> Olá, tenho 17 anos, sou um programador que não será capaz de responder.
 </p>
