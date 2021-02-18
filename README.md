@@ -14,7 +14,7 @@
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
 - 🎧 Discord: </Kirito Upptekinn.#0001
 
-### 🎧 *Minha Playlist !*
+#                                                                    🎧 *Minha playList*
 
 </p>
 <a href="https://open.spotify.com/playlist/3DuqWXqqP809p6W5yBrvXa" target="blank"><img align="center" src=https://i.pinimg.com/originals/46/2e/87/462e8760149728015a5e671e05becc6d.gif alt="Dessapossed" height="350" width="1012" /></a>
