@@ -11,7 +11,7 @@
 
 ### 🌟 *Vem Joga Comigo !*
 
-- 🎮 Jogos : Valorant, Fortnite, CsGo, League of Legends e Osu !
+- 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
 - 🎧 Discord: </Kirito Upptekinn.#0001
 
-[<img src="https://now-playing-codeSTACKr.vercel.app/api/spotify-playing" alt="codeSTACKr Spotify Playing" width="350" />](https://open.spotify.com/playlist/3DuqWXqqP809p6W5yBrvXa)
+[<img src="https://now-playing-codeSTACKr.vercel.app/api/spotify-playing" alt="codeSTACKr Spotify Playing" width="350" />](https://open.spotify.com/album/1gc4Fk56NHBjUBQUhfiQIC)
