@@ -9,12 +9,12 @@
 <a href="https://www.instagram.com/dessapossed/?hl=pt-br" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg" alt="Dessapossed" height="20" width="20" /></a>
 </p>
 
-### 🌟 *Vem Joga Comigo !*
+### 🌟・*Vem Joga Comigo !*
 
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
 - 🎧 Discord: </Kirito Upptekinn.#0001
 
-#                                                                    🎧 *Minha playList*
+#                                                                    🎧・*Minha playList*
 
 </p>
 <a href="https://open.spotify.com/playlist/3DuqWXqqP809p6W5yBrvXa" target="blank"><img align="center" src=https://i.pinimg.com/originals/46/2e/87/462e8760149728015a5e671e05becc6d.gif alt="Dessapossed" height="350" width="1012" /></a>
