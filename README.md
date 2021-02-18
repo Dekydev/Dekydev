@@ -1,6 +1,6 @@
 #                                                                    *Dessapossed*
 
-<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/806386966345154610/806396408881479680/LlvFI9c.gif" />
+<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/753695405321224242/812060118807085066/Kirito418.gif" />
 
 <p align="center"> Olá, tenho 17 anos, sou um programador que não será capaz de responder, minhas redes sociais logo abaixo.
 </p>
