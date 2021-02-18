@@ -12,7 +12,7 @@
 ### 🌟 *Vem Joga Comigo !*
 
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
-- 🎧 Discord: </Kirito Upptekinn.#0001
+- 🎧 DC: </Kirito Upptekinn.#0001
 
 #                                                                    🎧 *Minha playList*
 
