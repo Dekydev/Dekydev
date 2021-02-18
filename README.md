@@ -14,4 +14,4 @@
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
 - 🎧 Discord: </Kirito Upptekinn.#0001
 
-[<img src="https://now-playing-codeSTACKr.vercel.app/api/spotify-playing" alt="codeSTACKr Spotify Playing" width="350" />](https://open.spotify.com/album/1gc4Fk56NHBjUBQUhfiQIC)
+<img src="https://open.spotify.com/album/1gc4Fk56NHBjUBQUhfiQIC" />
