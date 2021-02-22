@@ -1,6 +1,6 @@
 #                                                                    *Dessapossed*
 
-<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/789727255399497738/813558608272687114/Kirito_85.gif" />
+<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/789727255399497738/813558950444138506/Kirito362.gif" />
 <p align="center"> Olá, tenho 17 anos, Minha Linguagem favorita é JavaScript. Minhas redes sociais logo abaixo.
 
 </p>
