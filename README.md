@@ -1,7 +1,7 @@
 #                                                                    *Dessapossed*
 
- <img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/789727255399497738/813559763089883156/Kirito_85.gif" />
-<p align="center"># *Olá, tenho 17 anos, Minha Linguagem favorita é JavaScript. Minhas redes sociais logo abaixo.*
+<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/789727255399497738/813559763089883156/Kirito_85.gif" />
+<p align="center">Olá, tenho 17 anos, Minha Linguagem favorita é JavaScript. Minhas redes sociais logo abaixo.
 
 </p>
 <p align="center">
@@ -12,7 +12,7 @@
 ### 🌟 *Vem Joga Comigo !*
 
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
-- 🎧 Meu DC: yKirito#0001
+- 🎧 Meu DC: </Kirito Upptekinn.#0001
 
 #                                                                    🎧 *Minha playList*
 
