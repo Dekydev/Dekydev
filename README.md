@@ -1,6 +1,6 @@
 #                                                                    *Dessapossed*
 
-<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/789727255399497738/813559763089883156/Kirito_85.gif" />
+<img align="right" alt="GIF" src="https://uploads.spiritfanfiction.com/fanfics/historias/202004/me-faz-doce-19162673-300420200126.gif" />
 <p align="center">Olá, tenho 17 anos, Minha Linguagem favorita é JavaScript. Minhas redes sociais logo abaixo.
 
 </p>
