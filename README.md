@@ -25,13 +25,11 @@
 <img align="right" alt="GIF" src="https://data.whicdn.com/images/308783684/original.gif" />
 
 - Shingeki no Kyojin
-- Sword Art Onlinne
-- Hanyou no Yashahime
+- Sword Art Online
 - Tokyo Ghoul
 - Jujutsu Kaisen
-- Wonder Egg Priority
 - Nanatsu no Taizai
 # *Filmes*
-- 
+- Nakitai Watashi wa Neko wo Kaburu
 - 
 - 
