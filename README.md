@@ -24,5 +24,13 @@
 
 <img align="right" alt="GIF" src="https://data.whicdn.com/images/308783684/original.gif" />
 
-- 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
-- 🎧 Meu DC: </Kirito Upptekinn.#0001
+- Shingeki no Kyojin
+- Sword Art Onlinne
+- Hanyou no Yashahime
+- Tokyo Ghoul
+- Jujutsu Kaisen
+- Wonder Egg Priority
+- Nanatsu no Taizai
+- 
+- 
+- 
