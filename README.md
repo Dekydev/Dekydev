@@ -19,5 +19,6 @@
 </p>
 <a href="https://open.spotify.com/playlist/2c1cFh0MSwbPoZFfWDHWTm" target="blank"><img align="center" src=https://i.pinimg.com/originals/46/2e/87/462e8760149728015a5e671e05becc6d.gif alt="Dessapossed" height="350" width="1012" /></a>
 </p>
-#                                                                    
+#                                                                    *Meu animes Favoritos*
+                                                                
 <img align="right" alt="GIF" src="https://data.whicdn.com/images/308783684/original.gif" />
