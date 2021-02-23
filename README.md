@@ -31,5 +31,5 @@
 - Nanatsu no Taizai
 # *Filmes*
 - Nakitai Watashi wa Neko wo Kaburu
-- 
-- 
+- Tenki no Ko
+- Kimi no Na wa
