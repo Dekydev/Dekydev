@@ -12,7 +12,7 @@
 ### *Vem Joga Comigo !*
 
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
-- 🎧 Meu DC: Yoshimoto#9992
+- 🎧 Meu DC: [100SAO] Kirito#6537
 
 #                                                                    🎧 *Minha playList*
 
