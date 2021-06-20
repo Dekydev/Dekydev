@@ -12,7 +12,7 @@
 ### *Vem Joga Comigo !*
 
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
-- 🎧 Meu DC: [COFFEE] Logtov#0001
+- 🎧 Meu DC: Whispersynia#0001
 
 #                                                                    🎧 *Minha playList*
 
