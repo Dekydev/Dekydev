@@ -1,18 +1,12 @@
 #                                                                    *Dessapossed*
 
 <img align="right" alt="GIF" src="https://steamuserimages-a.akamaihd.net/ugc/267227358854893671/1818DA2FB3754AF3DCC6525B272163D308F57E1D/" />
-<p align="center">Olá, tenho 17 anos, Minha Linguagem favorita é JavaScript. Minhas redes sociais logo abaixo.
-
-</p>
-<p align="center">
-<a href="https://www.facebook.com/kirito.upptekinn/" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg" alt="Dessapossed" height="20" width="20" /></a>
-<a href="https://www.instagram.com/dessapossed/?hl=pt-br" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg" alt="Dessapossed" height="20" width="20" /></a>
-</p>
+<p align="center">Olá, tenho 17 anos, Minha Linguagem favorita é JavaScript. 
 
 ### *Vem Joga Comigo !*
 
 - 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
-- 🎧 Meu DC: yoshimoto#0001
+- 🎧 Meu DC: Hitono#0001
 
 #                                                                    🎧 *Minha playList*
 
