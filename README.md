@@ -5,8 +5,8 @@
 
 ### *Vem Joga Comigo !*
 
-- 🎮 Jogos : Valorant, Fortnite, CsGo, LoL e Osu!
-- 🎧 Meu DC: Hitono#0001
+- 🎮 Jogos : Valorant, CsGo, LoL e Osu!
+- 🎧 Meu DC: ytino#0001
 
 #                                                                    🎧 *Minha playList*
 
