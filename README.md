@@ -6,7 +6,7 @@
 ### *Vem Joga Comigo !*
 
 - 🎮 Jogos : Valorant, CsGo, LoL e Osu!
-- 🎧 Meu DC: ytino#0001
+- 🎧 Meu DC: Synf#0001
 
 #                                                                    🎧 *Minha playList*
 
