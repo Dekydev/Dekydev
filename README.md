@@ -1,6 +1,6 @@
 <h1 align="center">Dessapossed</h1>
 <h3 align="center">Bem Vindo!</h3>
-<h3 align="center">Sou um programador que nao será capaz de te responder. 
+<h3 align="center">Sou um programador que não será capaz de te responder. 
 Espero que você goste do conteúdo que vou postar aqui, sou brasileiro, 
 tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários campos, como web, desktop (Windows). Nao sou tão bom essas coisas, mais eu tento >.<</h3>
 
