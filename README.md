@@ -10,3 +10,4 @@ tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários camp
 #                                                                    🎧 *Minha playList*
 
 <img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/868714631873585163/877253633824133161/tumblr_56f0890146e0aa2ec6fff665f37dce1f_11f3d2f7_540.gif" />
+- 🎧 ([Minha playlist](https://open.spotify.com/user/31rixvqa36wivjxrxbh3exixi7vy))
