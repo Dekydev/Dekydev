@@ -14,7 +14,7 @@ tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários camp
 <h3 align="center"> Espero que vocês gostem das Musicas. 
 Meus estilos de musicas favoritas são eletronica e internacional. 
 Mais Logo a baixo tem variações como rap de anime, opening de anime, nightcore e trap. 
-Foi um prazer, mostra um pouco sobre mim.</h3>
+Foi um prazer, mostra um pouco sobre mim. Logo postarei mais coisas aki.</h3>
 
 - 🎧 ([Minha playlist do spotify](https://open.spotify.com/user/31rixvqa36wivjxrxbh3exixi7vy))
 - 🎧 ([Minha playlist do SoundCloud](https://soundcloud.com/user-981597680-906168883))
