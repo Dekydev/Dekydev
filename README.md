@@ -3,9 +3,8 @@
 tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários campos, como web, desktop (Windows).</h3>
 
 - 📫 Me procurem pelo meu dc: Discord (Deky#0001), ([Minha musica favorita](https://www.youtube.com/watch?v=woNrNfFVsKc&ab_channel=NoCopyrightSounds))
-- 📫 Comidas favoritas: Sushi, Sushi, Sushi e mais Sushi.
-
 <img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/921306445893472266/957485495703724123/b574ec41fdfd78d81b6f628626f82050.gif" />
+- 📫 Comidas favoritas: Sushi, Sushi, Sushi e mais Sushi.
 
 #                                                                    🎧 *Minhas Musicas*
 
