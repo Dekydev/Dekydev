@@ -7,7 +7,7 @@ tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários camp
 
 #                                                                    🎧 *Minhas Musicas*
 
-<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/868714631873585163/877253633824133161/tumblr_56f0890146e0aa2ec6fff665f37dce1f_11f3d2f7_540.gif" />
+<img align="right" alt="GIF" src="https://media.discordapp.net/attachments/917215406668808195/919813163329912912/bf29916a230ef43f1f38202059585218.gif" />
 
 <h3 align="center"> Espero que vocês gostem das musicas. 
 Meus estilos de musicas são eletronica e internacional. 
