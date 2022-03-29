@@ -1,4 +1,3 @@
-<h1 align="center">Dekydev</h1>
 <h3 align="center">Bem Vindo!</h3>
 <h3 align="center">Sou um programador que não será capaz de te responder. Sou brasileiro, 
 tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários campos, como web, desktop (Windows).</h3>
