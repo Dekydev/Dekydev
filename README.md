@@ -9,6 +9,7 @@
 - 🌱 Meu Discord: Deky#0001
 - ✨ Nick no Valorant: Synf#0001
 - 🍀 Meu id da Steam: 1188992995
+- 🌠 Meu nick no Osu!: KiritoUpptekinn
 
 #                                                                    🎧 *Minha playList*
 
