@@ -6,10 +6,10 @@
 
 🎧 ɴᴇғғᴇx - ᴛʜɪɴɢs ᴀʀᴇ ɢᴏɴɴᴀ ɢᴇᴛ ʙᴇᴛᴛᴇʀ
 
-0:35 ━❍──────── -5:32
+ 0:35 ━❍──────── -5:32
 
-↻     ⊲  Ⅱ  ⊳     ↺
-VOLUME: ▁▂▃▄▅▆▇ 100%
+ ↻     ⊲  Ⅱ  ⊳     ↺
+ VOLUME: ▁▂▃▄▅▆▇ 100%
 
 - ([Minha playlist do spotify](https://open.spotify.com/user/31rixvqa36wivjxrxbh3exixi7vy))
 - ([Minha playlist do SoundCloud](https://soundcloud.com/user-981597680-906168883))
