@@ -15,6 +15,7 @@ tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários camp
 ɴᴇғғᴇx - ᴛʜɪɴɢs ᴀʀᴇ ɢᴏɴɴᴀ ɢᴇᴛ ʙᴇᴛᴛᴇʀ
 
 0:35 ━❍──────── -5:32
+
 ↻     ⊲  Ⅱ  ⊳     ↺
 VOLUME: ▁▂▃▄▅▆▇ 100%
 
