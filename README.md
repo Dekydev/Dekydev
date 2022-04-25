@@ -1,5 +1,5 @@
 
-#                                                                    *• 🍂Bem Vindo ao Meu Perfil da Github* 🍃
+#                                                                    *• 🍂 Bem Vindo ao Meu Perfil da Github* 🍃
 
 <img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
 <p align="center"> Ninguém me entenderia e eu nem me explicaria, acordando cansado e vazio todos os dias.
