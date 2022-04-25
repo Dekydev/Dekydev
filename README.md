@@ -13,10 +13,9 @@ tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários camp
 - 🎧 ([Minha playlist do SoundCloud](https://soundcloud.com/user-981597680-906168883))
 
 ɴᴇғғᴇx - ᴛʜɪɴɢs ᴀʀᴇ ɢᴏɴɴᴀ ɢᴇᴛ ʙᴇᴛᴛᴇʀ
+
 0:35 ━❍──────── -5:32
-
 ↻     ⊲  Ⅱ  ⊳     ↺
-
 VOLUME: ▁▂▃▄▅▆▇ 100%
 
 <h3>
