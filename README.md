@@ -7,7 +7,7 @@ tenho 18 anos. Sou um desenvolvedor de variedades que se envolve em vários camp
 
 #                                                                    🎧 *Minhas Musicas*
 
-<img align="right" alt="GIF" src="https://i.pinimg.com/originals/87/f3/f1/87f3f1425b217691da645e97dbb50d55.gif" />
+<img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
 
 <h3 align="center"> Espero que vocês gostem do meu estilo musical, eletronica e internacional, mais logo a baixo tem variações como rap de anime, opening de anime, nightcore e trap. Foi um prazer, mostra um pouco sobre mim, logo postarei mais coisas aki.</h3>
 
