@@ -19,7 +19,7 @@
 
 #                                                                    *▸ 🔎 Meus Animes Favoritos 🎉*
 
-<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/930907069454888970/966905308289044480/98025eea0cffc301c68ca9366c7cea25.gif" />
+<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/921306445893472266/963668700593004544/ba9c974edabed08eaf383adee8c100a1.gif" />
 
 - Jujutsu Kaisen
 - Sword Art Online
