@@ -6,7 +6,9 @@
 
 ### *Vem Me conhecer melhor!*
 
-- 🎧 Meu DC: Deky#0001
+- 🌱 Meu Discord: Deky#0001
+- ✨ Nick no Valorant: Synf#0001
+- 🍀 Meu id da Steam: 1188992995
 
 #                                                                    🎧 *Minha playList*
 
