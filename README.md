@@ -2,7 +2,7 @@
 #                                                                    *▸ 🍂 Bem Vindo ao Meu Perfil da Github* 🍃
 
 <img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
-<p align="center"> Ninguém me entenderia e eu nem me explicaria, acordando cansado e vazio todos os dias.
+<p align="center"> Vocês estarão a salvo, desde que estejam juntos. Algum dia, definitivamente voltaremos à realidade. Há vários jogadores como você, que têm medo de morrer. Mas eles continuam rindo, chorando e fazendo o melhor que podem nesse mundo.
 
 ###  *▸ 🚩 Vem Me conhecer melhor! 🎻*
 
