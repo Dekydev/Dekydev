@@ -1,4 +1,4 @@
-<h3 align="center">Bem Vindo!</h3>
+#                                                                    BEM VINDO!
 
 - 📫 Me procurem pelo meu dc: Discord (Deky#0001), ([Minha musica favorita](https://www.youtube.com/watch?v=woNrNfFVsKc&ab_channel=NoCopyrightSounds))
 - 📫 Comidas favoritas: Sushi, Sushi, Sushi e mais Sushi.
