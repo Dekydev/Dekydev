@@ -2,7 +2,6 @@
 <div>
 <a href="https://discord.gg/PBBZEhPFVt" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a>
 </div>
-- Comidas favoritas: Sushi, Sushi, Sushi e mais Sushi.
 
 <img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
 
