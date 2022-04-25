@@ -2,7 +2,9 @@
 - Comidas favoritas: Sushi, Sushi, Sushi e mais Sushi.
 
 <img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
-
+<div>
+<a href="https://discord.gg/J6vqA58VDg" target="_blank"><img src="https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white" target="_blank"></a>
+</div>
 🎧 ɴᴇғғᴇx - ᴛʜɪɴɢs ᴀʀᴇ ɢᴏɴɴᴀ ɢᴇᴛ ʙᴇᴛᴛᴇʀ
 
 0:35 ━❍──────── -5:32
