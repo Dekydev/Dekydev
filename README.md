@@ -1,10 +1,5 @@
 
-- Me procurem pelo meu dc: Discord (Deky#0001), ([Minha musica favorita](https://www.youtube.com/watch?v=woNrNfFVsKc&ab_channel=NoCopyrightSounds))
-
-<img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
-
-
-#                                                                    *Hakir4*
+#                                                                    *Bem Vindo ao Meu Perfil da Github*
 
 <img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
 <p align="center"> Ninguém me entenderia e eu nem me explicaria, acordando cansado e vazio todos os dias.
