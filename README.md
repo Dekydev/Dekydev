@@ -1,7 +1,7 @@
 
 #                                                                    *▸ 🍂 Bem Vindo ao Meu Perfil da Github* 🍃
 
-<img align="right" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
+<img align="left" alt="GIF" src="https://i.redd.it/aym1gqxv0eo71.gif" />
 <p align="center"> Aqui ou no mundo real você pode chorar quando doer. Não há regra dizendo que você não pode mostrar seus sentimentos só porque é um jogo.
 
 ###  *▸ 🚩 Vem Me conhecer melhor! 🎻*
