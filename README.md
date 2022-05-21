@@ -1,6 +1,7 @@
 
 #                                                                    *▸ 🍂 Bem Vindo ao Meu Perfil da Github* 🍃
-<p align="center"> Aqui ou no mundo real você pode chorar quando doer. Não há regra dizendo que você não pode mostrar seus sentimentos só porque é um jogo.
+<p align="center"> Aqui ou no mundo real você pode chorar quando doer. 
+Não há regra dizendo que você não pode mostrar seus sentimentos só porque é um jogo.
   
 ###  *▸ 🚩 Vem Me conhecer melhor! 🎻*
 
