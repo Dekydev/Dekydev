@@ -18,7 +18,6 @@ Não há regra dizendo que você não pode mostrar seus sentimentos só porque �
 
 #                                                                    *▸ 🔎 Meus Animes Favoritos 🎉*
 
-<img align="right" alt="GIF" src="https://cdn.discordapp.com/attachments/921306445893472266/963668700593004544/ba9c974edabed08eaf383adee8c100a1.gif" />
 
 - Jujutsu Kaisen
 - Sword Art Online
