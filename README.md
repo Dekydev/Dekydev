@@ -1,8 +1,6 @@
 
 #                                                                    *▸ 🍂 Bem Vindo ao Meu Perfil da Github* 🍃
 
-<div class="title"></div>
-
 ###  *▸ 🚩 Vem Me conhecer melhor! 🎻*
 
 - 🌱 Meu Discord: Deky#0001
