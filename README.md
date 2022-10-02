@@ -1,8 +1,8 @@
 
 #                                                                    *▸ 🍂 Bem Vindo ao Meu Perfil da Github* 🍃
-<p align="center"> Aqui ou no mundo real você pode chorar quando doer. 
-Não há regra dizendo que 
-você não pode mostrar seus sentimentos só porque é um jogo.
+<p align="center">
+Aqui ou no mundo real você pode chorar quando doer. Não há regra dizendo que você não pode mostrar seus sentimentos só porque é um jogo.
+<link rel="stylesheet" href="https://www.youtube.com/watch?v=1LJGQb_pn6k&ab_channel=MiguelMaia" />
   
 ###  *▸ 🚩 Vem Me conhecer melhor! 🎻*
 
